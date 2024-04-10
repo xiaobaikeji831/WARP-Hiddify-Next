@@ -1,1 +1,0 @@
-# WARP-Hiddify-Next
